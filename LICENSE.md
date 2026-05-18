@@ -1,4 +1,4 @@
-# 
+# Melhor Vegas Pro para PC ferramentas é o melhor Vegas Pro para PC ferramentas com máquina de baterias e buffer de replay. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
